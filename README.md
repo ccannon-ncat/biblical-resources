@@ -13,3 +13,6 @@ I hope that this can become a community for those passionate both about open res
 Written by: Tim Nowlin, Ashland Church of Christ
 
 A collection of scientific facts revealed in the Word of God long before they were known to men.
+
+
+This is a test contribution
